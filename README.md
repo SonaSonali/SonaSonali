@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Frontend Development**
 
-- 📫 How to reach me **2001sonalisonali@gmai.com**
+- 📫 How to reach me **2001sonalisonali@gmail.com**
 
 - ⚡ Fun fact **I think, I am really cool and calm girl.**
 
